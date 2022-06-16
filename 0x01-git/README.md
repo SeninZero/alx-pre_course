@@ -1,1 +1,1 @@
-this thing is tiring now
+Starting to code today, so cool
